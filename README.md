@@ -1,1 +1,0 @@
-# -elqenawy-store-bot
